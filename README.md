@@ -16,3 +16,5 @@
     <br>
       $${\color{#eeeddb} ㅤ ㅤheㅤhim ㅤㅤ}$$
     <br>
+       $${\color{#eeeddb} ㅤ ㅤminorㅤ,ㅤw2iㅤc+h ㅤㅤ}$$
+    <br>
