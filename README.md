@@ -1,9 +1,7 @@
-## *i am addicted to you, i am addicted to you [♡](https://youtu.be/WLio2du0oWo)*
-> ![](https://i.pinimg.com/1200x/a8/49/b5/a849b5b7d20d231b4fd9cba4d6d23efb.jpg)
+
+</p> <p align="center"><img src="https://i.pinimg.com/736x/ff/bb/f8/ffbbf8a0251494043e4ee4489a27a85b.jpg">
 
 
-　　    <br>
-  </tr>
   </td>
     <br>
   <p align="center">
